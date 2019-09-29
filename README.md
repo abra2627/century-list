@@ -32,7 +32,7 @@
 
 10. experience pregnancy
 
-11.coordinate a wedding (not my own)
+11. coordinate a wedding (not my own)
 
 12. participate in a green burial
 
