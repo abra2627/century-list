@@ -12,7 +12,7 @@
 #### need to add **100** items
 
 
-1. 
+1. send a care package overseas
 
 2. **graduate college**
 
@@ -20,13 +20,13 @@
 
 4. **take a cooking class**
 
-5. 
+5. design & sew a swim suit (quilted?)
 
-6.
+6. roast a whole pig
 
 7. **eat: mountain lion, squirrel**
 
-8. **Walk in  the Redwood Forest** 
+8. **walk in the redwood forest & see the oldest trees** 
 
 9. give a euology
 
@@ -42,23 +42,23 @@
 
 15. ride in a helicopter
 
-16. **Vote in a presidential campaign** 
+16. go to red rocks for the easter sunrise service
 
 17. take a yoga class
 
-18. **Get a tattoo**
+18. visit stonehenge
 
-19. **Get a piercing** 
+19. see christ the redeemer in brasil
 
-20. **Go inside the NYSE** 
+20. go inside the NYSE
 
-21. **See the Grand Canyon** 
+21. see the end of the colorado river
 
 22. rescue a dog 
 
-23. **Walk in Times Square NYC**
+23. visit alcatraz 
 
-24. **Stay up all night to watch the sunrise** 
+24. take a sabbatical
 
 25. send someone to college
 
@@ -72,17 +72,17 @@
 
 30. read a thousand books
 31. climb ten fourteeners (1/10)
-32. 
+32. take a (temporary) vow of silence
 33. take an improv class
 34. be a maid of honor
 35. fill ten journals
-36. 
+36. deliver a keynote 
 37. take three international trips with my siblings
-38. 
+38. beekeep 
 39. go kayaking
 40. drive entire length of colfax street (longest in USA)
 41. take a road trip on route 66
-42. 
+42. flip a house
 43. take a dance class
 44. attend an all black game
 45. Mentor 3 People
@@ -97,18 +97,18 @@
 54. visit rastatt, germany
 55. sit on a jury  
 56. pay cash for a car 
-57. Pass through the Panama Canal  
+57. go to reiki
 58. shoot a bow & arrow
 59. swim in the great barrier reef  
 60. visit easter island  
-61. Walk through the Taj Mahal  
-62. Walk through the Red Square  
+61. walk through the taj mahal  
+62. see the terra cotta soldiers 
 63. make a podcast
 64. visit all fifty states & d.c. 
 65. develop the ability to memorize a deck of cards
 66. step foot on six continents 
 67. float in the dead sea
-68. Debt free by age 50, all assets  
+68. see the grand canyon
 69. host a murder mystery dinner party
 70. teach a class   
 71. write a book
@@ -137,7 +137,7 @@
 94. see civil war cemeteries in the smoky mountains
 95. master the art of the stick shift 
 96. develop a magic trick routine 
-97. Go a week without caffeine
-98. Dine at 10 Michelin 3 Star restaurants
-99. 
-100. Read 20 books twice
+97. get hypnotized 
+98. visit sri lanka
+99. be in new orleans during mardi gras
+100. teach someone to read
