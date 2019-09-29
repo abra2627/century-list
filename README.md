@@ -7,239 +7,207 @@
 
 **abbie rastatter's century list**
 
-### currently completed **0** Items
+### currently completed **6** Items
 #### need proof for **0** items
-#### need to add **100** items
+#### need to add **0** items
 
 
-1. 
+1. **get a job i can walk to**
 
 2. **graduate college**
-
-3. get married
-have a namesake
-send someone to college
-be a maid of honor
+ 
+3. **have a namesake**
 
 4. **take a cooking class**
 
-5. design & sew a swim suit (quilted?)
-sew my own set of linen sheets
+5. **teach a class**
 
-6. roast a whole pig
-grow my own food
+6. **float in the dead sea**
 
-7. eat: mountain lion, squirrel
+7. get married
 
-8. 
+8. send someone to college
 
-9. 
+9. be a maid of honor
 
-10. travel to thirty countries
+10. experience pregnancy
 
-11. visit turkey 
+11.coordinate a wedding (not my own)
 
-12. visit stonehenge
-see christ the redeemer in brasil
-go to carnival in brasil 
-go to the end of the colorado river
-visit alcatraz 
-walk in the redwood forest & see the oldest trees
-see the grand canyon
-go inside the NYSE
-take three international trips with my siblings
-take a road trip on route 66
-attend an all black game
-spend christmas on a beach
-visit rastatt, germany
-visit sri lanka
-be in new orleans during mardi gras
-visit machu picchu
-see civil war cemeteries in the smoky mountains
+12. participate in a green burial
 
-go kayaking
-ride a train (not a subway)
-climb ten fourteeners (1/10)
-drive entire length of colfax street (longest in USA)
-ride on the back of a motorcycle
+13. design & sew a swim suit (quilted?)
 
-13. own a home 
+14. sew my own set of linen sheets
 
-14. own a rental property or second home
-flip a house
-pay cash for a car 
-rescue a dog 
+15. make a podcast
 
-give a euology
-15. ride in a helicopter
+16. design a typeface
 
-16. go to red rocks for the easter sunrise service
+17. roast a whole pig
 
-take a sabbatical
-17. take a yoga class
+18. grow my own food
 
-18. take an improv class
+19. beekeep 
 
-19. take a dance class
+20. brew my own kombucha
 
-20. 
+21. host a five course dinner party
 
-21. take a (temporary) vow of silence
+22. host a murder mystery dinner party
 
-22. 
+23. plant one hundred trees  
 
-23. 
+24. eat: mountain lion, squirrel 
 
-24. 
+25. travel to thirty countries
 
-25. 
+26. visit all fifty states & d.c.
 
-26. 
+27. take three international trips with my siblings
 
-27. 
+28. step foot on six continents 
 
-28. run a business
+29. visit turkey 
 
-29. read the major religious texts
+30. visit stonehenge
 
-30. read a thousand books
+31. see christ the redeemer in brasil
 
-31. fill ten journals
+32. go to carnival in brasil 
 
-32. deliver a keynote 
+33. go to the end of the colorado river
 
-33. 
+34. visit alcatraz 
 
-34. 
+35. walk in the redwood forest & see the oldest trees
 
-35. 
+36. see the grand canyon
 
-36. 
+37. take a road trip on route 66
 
-37. float in a sensory deprivation tank
+38. attend an all black game
 
-38. beekeep 
+39. spend christmas on a beach
 
-39. 
+40. visit rastatt, germany
 
-40. 
+41. visit sri lanka
 
-41. 
+42. be in new orleans during mardi gras
 
-42. 
+43. visit machu picchu
 
-43. 
+44. see civil war cemeteries in the smoky mountains
 
-44. send a care package overseas
+45. visit easter island 
 
-45. donate my hair
+46. walk through the taj mahal 
 
-46. sponsor three children in developing countries
+47. swim in the great barrier reef  
 
-47. donate one hundred pints of blood
+48. see the terra cotta soldiers 
 
-48. 
+49. see the northern lights
 
-49. 
+50. go inside the NYSE
 
-50. 
+51. stand on a black sand beach 
 
-51. get a job i can walk to 
+52. walk on the great wall of china 
 
-52. 
+53. go to cedar point
 
-53. manage a politcal campaign
+54. go kayaking
 
-54. 
+55. ride a train (not a subway)
 
-55. sit on a jury  
+56. ride in a hot air ballon  
 
-56. 
+57. drive entire length of colfax street (longest in USA)
 
-57. go to reiki
+58. ride on the back of a motorcycle
 
-58. shoot a bow & arrow
+59. go skydiving  
 
-59. swim in the great barrier reef  
+60. ride in a helicopter
 
-60. visit easter island  
+61. master the art of the stick shift
 
-61. walk through the taj mahal  
+62. go mountain biking
 
-62. see the terra cotta soldiers 
+63. climb ten fourteeners (1/10)
 
-63. make a podcast
+64. hike the colorado trail 
 
-64. visit all fifty states & d.c. 
+65. shoot a bow & arrow
 
-65. develop the ability to memorize a deck of cards
+66. camp in the winter
 
-66. step foot on six continents 
+67. own a home 
 
-67. float in the dead sea
+68. own a rental property or second home
 
-68. 
+69. flip a house
 
-69. host a murder mystery dinner party
+70. pay cash for a car 
 
-70. teach a class   
+71. rescue a dog 
 
-71. write a book
+72. go to red rocks for the easter sunrise service
 
-72. get something published  
+73. participate in ramadan
 
-73. experience pregnancy
+74. take a sabbatical
 
-74. see the northern lights
+75. take a yoga class
 
-75. hike the colorado trail 
+76. take an improv class
 
-76. put green burial in my funeral plan / will
+77. take a dance class
 
-77. go skydiving  
+78. perform stand up comedy  
 
-78. ride in a hot air ballon  
+79. go to a film festival 
 
-79. walk on the great wall of china 
+80. take a (temporary) vow of silence
 
-80. host a five course dinner party
+81. get hypnotized 
 
-81. brew my own kombucha
+82. go to reiki
 
-82. coordinate a wedding (not my own)
+83. develop a magic trick routine 
 
-83. go to a film festival 
+84. read the major religious texts
 
-84. design a typeface
+85. read a thousand books
 
-85. perform stand up comedy  
+86. fill ten journals
 
-86. become a member of an executive team
+87. deliver a keynote 
 
-87. go to cedar point
+88. write a book
 
-88. stand on a black sand beach 
+89. give a euology
 
-89. go mountain biking
+90. get something published  
 
-90. plant one hundred trees  
+91. become a member of an executive team
 
-91. 
+92. run a business
 
-92. 
+93. manage a politcal campaign
 
-93. 
+94. sit on a jury  
 
-94. 
+95. develop the ability to memorize a deck of cards
 
-95. master the art of the stick shift 
+96. float in a sensory deprivation tank
 
-96. develop a magic trick routine 
+97. send a care package overseas
 
-97. get hypnotized 
+98. donate my hair
 
-98. participate in ramadan
+99. sponsor three children in developing countries
 
-99. 
-
-100. 
+100. donate one hundred pints of blood
