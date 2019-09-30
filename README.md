@@ -58,9 +58,9 @@
 
 23. eat: mountain lion, squirrel 
 
-24. travel to thirty countries [3/10]
+24. travel to thirty countries [3/10](../master/countries.md)
 
-25. visit all fifty states (& puerto rico) & d.c. [22/52]
+25. visit all fifty states (& puerto rico) & d.c. [22/52](../master/states.md)
 
 26. take three international trips with my siblings
 
@@ -178,7 +178,7 @@
 
 83. read the major religious texts
 
-84. read a thousand books [4/1000]
+84. read a thousand books [4/1000](../master/books.md)
 
 85. fill ten journals
 
