@@ -7,8 +7,8 @@
 
 **abbie rastatter's century list**
 
-### currently completed **6** Items
-#### need proof for **0** items
+### currently completed **6** items
+#### need proof for **1** item
 #### need to add **0** items
 
 
@@ -22,7 +22,7 @@
 
 5. **teach a class** [i was fortunate enough to teach three in college. jan 2018 - may 2019](../master/proof/teach.png)
 
-6. **float in the dead sea**
+6. **float in the dead sea** need proof
 
 7. get married
 
