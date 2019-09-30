@@ -16,7 +16,7 @@
 
 2. **graduate college** [may 2019, university of colorado at boulder - technology, arts & media and economics](../master/proof/college.png)
  
-3. **have a namesake** [addie leigh rastatter, born october 1st, 2016[(../master/proof/namesake.png)
+3. **have a namesake** [addie leigh rastatter, born october 1st, 2016](../master/proof/namesake.png)
 
 4. **take a cooking class**
 
