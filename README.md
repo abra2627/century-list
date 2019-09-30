@@ -14,7 +14,7 @@
 
 1. **get a job i can walk to**
 
-2. **graduate college** [may 2019 university of colorado at boulder, technology, arts & media and economics](../master/proof/college.jpg)
+2. **graduate college** [may 2019 university of colorado at boulder, technology, arts & media and economics](../master/proof/cooking-class.jpg)
  
 3. **have a namesake**
 
