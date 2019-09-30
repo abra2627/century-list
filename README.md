@@ -58,13 +58,13 @@
 
 23. eat: mountain lion, squirrel 
 
-24. travel to thirty countries
+24. travel to thirty countries [3/10]
 
-25. visit all fifty states & d.c.
+25. visit all fifty states (& puerto rico) & d.c. [22/52]
 
 26. take three international trips with my siblings
 
-27. step foot on six continents 
+27. step foot on six continents [2/6]
 
 28. visit turkey 
 
@@ -178,7 +178,7 @@
 
 83. read the major religious texts
 
-84. read a thousand books
+84. read a thousand books [4/1000]
 
 85. fill ten journals
 
