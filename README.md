@@ -18,7 +18,7 @@
  
 3. **have a namesake** [addie leigh rastatter, born october 1st, 2016](../master/proof/namesake.png)
 
-4. **take a cooking class**
+4. **take a cooking class** [food lab, april 2018. christmas bonus from saint aidan's](../master/proof/cooking-class.png)
 
 5. **teach a class**
 
