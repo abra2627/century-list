@@ -134,7 +134,7 @@
 
 61. go mountain biking
 
-62. climb ten fourteeners (1/10) [sherman](../master/proof/sherman.png)
+62. climb ten fourteeners [1/10] [sherman](../master/proof/sherman.png)
 
 63. hike the colorado trail 
 
