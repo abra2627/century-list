@@ -12,15 +12,15 @@
 #### need to add **0** items
 
 
-1. **get a job i can walk to**
+1. **get a job i can walk to** [i've had two]
 
 2. **graduate college**   [may 2019, university of colorado at boulder - technology, arts & media and economics](../master/proof/college.png)
  
-3. **have a namesake**   [addie leigh rastatter, born october 1st, 2016](../master/proof/namesake.png)
+3. **have a namesake**   [addie leigh rastatter. born october 1st, 2016](../master/proof/namesake.png)
 
 4. **take a cooking class**   [food lab, april 2018. christmas bonus from saint aidan's](../master/proof/cooking-class.png)
 
-5. **teach a class** [i was fortunate enough to teach three in college! jan 2018 - may 2019](../master/proof/teach.png)
+5. **teach a class** [i was fortunate enough to teach three in college. jan 2018 - may 2019](../master/proof/teach.png)
 
 6. **float in the dead sea**
 
