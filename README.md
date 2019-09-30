@@ -12,7 +12,7 @@
 #### need to add **0** items
 
 
-1. **get a job i can walk to** [i've had two!]
+1. **get a job i can walk to** [i've had](../master/proof/staidans.png) [two](../master/proof/staidans.png)
 
 2. **graduate college**   [may 2019, university of colorado at boulder - technology, arts & media and economics](../master/proof/college.png)
  
