@@ -58,7 +58,7 @@
 
 23. eat: mountain lion, squirrel 
 
-24. travel to thirty countries [3/10](../master/countries.md)
+24. travel to thirty countries [3/30](../master/countries.md)
 
 25. visit all fifty states (& puerto rico) & d.c. [22/52](../master/states.md)
 
